@@ -5,4 +5,4 @@ _By CV Cariaga
 
 
 <
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/vfnAYipqj1k)](https://youtu.be/vfnAYipqj1k)
+[![Line-Without-a-Hook](https://img.youtube.com/vi/vfnAYipqj1k)](https://youtu.be/vfnAYipqj1k)
